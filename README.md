@@ -1,8 +1,8 @@
-#ANDREIA DE JESUS
+ANDREIA DE JESUS
 
 <descricao>
 
-tenho muito a aprender ainda 
+ME CHAMO ANDREIA e tenho muito a aprender ainda 
 
 ## Tecnonologia
 
